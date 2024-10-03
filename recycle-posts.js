@@ -4,7 +4,7 @@ const matter = require('gray-matter');
 const { execSync } = require('child_process');
 const axios = require('axios');
 
-const contentDir = path.join(__dirname, 'content', 'posts');
+const contentDir = path.join(__dirname, 'content');
 const now = new Date();
 
 // Daftar layanan ping
