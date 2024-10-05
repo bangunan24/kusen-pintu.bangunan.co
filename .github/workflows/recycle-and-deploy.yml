@@ -2,8 +2,10 @@ name: Recycle Posts and Deploy
 
 on:
   schedule:
-    - cron: '0 0 * * *'  # Jalankan setiap hari pada pukul 00:00 UTC
-  workflow_dispatch:  # Memungkinkan trigger manual
+    - cron: '0 0 * * *'
+  push:
+    branches: [ master ]
+  workflow_dispatch:
 
 jobs:
   recycle-and-deploy:
@@ -23,6 +25,13 @@ jobs:
 
     - name: Install dependencies
       run: npm ci
+
+    - name: Debug - List directory structure
+      run: |
+        echo "Current directory:"
+        pwd
+        echo "Directory contents:"
+        ls -R content
 
     - name: Run recycle and build
       run: npm run build:recycle
