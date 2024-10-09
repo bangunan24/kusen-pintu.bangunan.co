@@ -97,7 +97,7 @@ paginate = 6
   name = "{Siti|Rina|Dewi|Ayu|Sari|Lina|Fitri|Diah|Nur|Maya}"
   message = "{kusen-pintu.bangunan.co sangat {membantu|mempermudah} saya dalam {memilih|menentukan} dan memasang kusen pintu alumunium untuk {rumah|proyek} saya. Hasilnya {sangat memuaskan|luar biasa|memenuhi harapan} dan sesuai dengan {kebutuhan|ekspektasi|rencana} saya.|Saya {sangat puas|terkesan} dengan bantuan kusen-pintu.bangunan.co dalam pemasangan kusen pintu yang {rapi|teratur} dan sesuai dengan keinginan saya.}"
   response = "{Kami sangat {menghargai|berterima kasih atas} ulasan Anda. Senang mendengar bahwa Anda puas dengan {layanan|pelayanan} dan produk kusen pintu kami.|Terima kasih atas ulasannya, kami senang dapat memenuhi harapan Anda.}"
-  rating = 4.5
+  rating = 4
 
 [[params.testimonials]]
   avatar = "/images/admin/avatar3.png"
