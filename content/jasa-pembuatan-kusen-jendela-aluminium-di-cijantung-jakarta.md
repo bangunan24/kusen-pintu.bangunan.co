@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cijantung Jakarta"
-date: "2024-05-12"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cijantung Jakarta. Seperti itulah beberapa penjelasan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cijantung Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cijantung Jakarta. Seperti itulah
+  beberapa penjelasan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen
+  Jendela...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cijantung Jakarta** – Mendengar istileh kusen Pastinya sudah tidak asing lagi untuk anda. Kusen yaitu sebuah penghubung yang ialah bagian dari kontruksi bangunan, dimana kusen tadi bisa dihubungkan dg sebagian variasi benda seperti pintu, jendela dan bermacam2 tipe jendela lainnya.

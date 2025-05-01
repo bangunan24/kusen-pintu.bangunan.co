@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cibitung Bekasi"
-date: "2024-05-17"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cibitung Bekasi. Sampai disini sebagian informasi yg dapat kami uraikan mengenai Jasa Pembuatan Kusen Jendela Alumi..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cibitung Bekasi
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cibitung Bekasi. Sampai disini
+  sebagian informasi yg dapat kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Alumi...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cibitung Bekasi** – Mendengar istileh kusen Pastinya sudah tdk asing lagi untuk anda. Kusen yaitu sebuah penghubung yang merupakan bagian dari kontruksi bangunan, dimana kusen tersebut dapat dikaitkan dg sebagian ragam benda seperti pintu, jendela dan bermacam-macam macam jendela lainnya.

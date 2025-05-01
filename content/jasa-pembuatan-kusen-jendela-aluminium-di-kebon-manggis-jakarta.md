@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kebon Manggis Jakarta"
-date: "2024-05-18"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kebon Manggis Jakarta. Itulah beberapa uraian yang dapat kami uraikan mengenai Jasa Pembuatan Kusen Jendela Alumini..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kebon Manggis Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kebon Manggis Jakarta. Itulah
+  beberapa uraian yang dapat kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Alumini...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kebon Manggis Jakarta** – Mendengar istileh kusen Tentunya akan tidak heran lagi untuk anda. Kusen merupakan suatu penghubung yg ialah bagian dari kontruksi bangunan, dimana kusen tersebut bisa dikaitkan dengan sebagian jenis benda seperti pintu, jendela dan bermacam2 variasi jendela lainnya.

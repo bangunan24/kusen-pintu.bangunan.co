@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di KebonPala Jakarta"
-date: "2024-05-16"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di KebonPala Jakarta. Sampai disini beberapa pemaparan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela Al..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di KebonPala Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di KebonPala Jakarta. Sampai disini
+  beberapa pemaparan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen
+  Jendela Al...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di KebonPala Jakarta** – Mendengar istileh kusen Pastinya akan tdk heran lagi bagi anda. Kusen merupakan sebuah penghubung yg yakni komponen dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan sebagian jenis benda semisal pintu, jendela dan bermacam-macam ragam jendela yang lain.

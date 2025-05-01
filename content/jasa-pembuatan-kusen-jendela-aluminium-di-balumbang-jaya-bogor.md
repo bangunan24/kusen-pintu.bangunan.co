@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Balumbang Jaya Bogor"
-date: "2024-05-23"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Balumbang Jaya Bogor. Demikian beberapa uraian yg dapat kami rincikan perihal Jasa Pembuatan Kusen Jendela Aluminiu..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Balumbang Jaya Bogor
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Balumbang Jaya Bogor. Demikian
+  beberapa uraian yg dapat kami rincikan perihal Jasa Pembuatan Kusen Jendela
+  Aluminiu...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Balumbang Jaya Bogor** – Mendengar istileh kusen Pastinya tidak akan aneh lagi untuk anda. Kusen yakni suatu penghubung yg merupakan komponen dari kontruksi bangunan, dimana kusen tersebut dapat dikaitkan dg sebagian tipe benda semisal pintu, jendela dan beraneka tipe jendela yang lain.

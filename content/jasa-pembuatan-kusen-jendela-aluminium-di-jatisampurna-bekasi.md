@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Jatisampurna Bekasi"
-date: "2024-05-19"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Jatisampurna Bekasi. Seperti itulah sebagian penjelasan yang bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendel..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Jatisampurna Bekasi
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Jatisampurna Bekasi. Seperti itulah
+  sebagian penjelasan yang bisa kami uraikan mengenai Jasa Pembuatan Kusen
+  Jendel...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Jatisampurna Bekasi** – Mendengar istileh kusen Tentunya tidak akan heran lagi untuk anda. Kusen yaitu suatu penghubung yg adalah komponen dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dengan beberapa tipe benda semisal pintu, jendela dan beraneka tipe jendela yang lain.

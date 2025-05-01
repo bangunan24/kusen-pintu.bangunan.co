@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cibatu Purwakarta"
-date: "2024-05-15"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cibatu Purwakarta. Itulah beberapa penjelasan yg bisa kami jelaskan mengenai Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cibatu Purwakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cibatu Purwakarta. Itulah beberapa
+  penjelasan yg bisa kami jelaskan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cibatu Purwakarta** – Mendengar istileh kusen Pastinya tidak akan aneh lagi bagi anda. Kusen adalah suatu penghubung yg adalah bagian dari kontruksi bangunan, dimana kusen tersebut dapat dihubungkan dengan sebagian jenis benda semisal pintu, jendela dan bermacam-macam ragam jendela yang lain.

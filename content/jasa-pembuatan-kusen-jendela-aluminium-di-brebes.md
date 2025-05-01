@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Brebes"
-date: "2024-05-22"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Brebes. Itulah beberapa penjelasan yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Aluminium di Brebes...."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Brebes
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Brebes. Itulah beberapa penjelasan
+  yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Aluminium di
+  Brebes....
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Brebes** – Mendengar istileh kusen Tentunya sudah tidak heran lagi untuk anda. Kusen ialah sebuah penghubung yang merupakan bagian dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg beberapa jenis benda semisal pintu, jendela dan bermacam2 variasi jendela lainnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Jatiasih Bekasi"
-date: "2024-05-19"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Jatiasih Bekasi. Seperti itulah sebagian informasi yg dapat kami sampaikan tentang Jasa Pembuatan Kusen Jendela Alu..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Jatiasih Bekasi
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Jatiasih Bekasi. Seperti itulah
+  sebagian informasi yg dapat kami sampaikan tentang Jasa Pembuatan Kusen
+  Jendela Alu...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Jatiasih Bekasi** – Mendengar istileh kusen Pastinya akan tidak aneh lagi untuk anda. Kusen yaitu sebuah penghubung yang yaitu bagian dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg sebagian jenis benda seperti pintu, jendela dan beraneka tipe jendela yang lain.

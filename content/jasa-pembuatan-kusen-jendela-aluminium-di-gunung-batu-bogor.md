@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Gunung Batu Bogor"
-date: "2024-05-20"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Gunung Batu Bogor. Sampai disini beberapa uraian yang bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Alumi..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Gunung Batu Bogor
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Gunung Batu Bogor. Sampai disini
+  beberapa uraian yang bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Alumi...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Gunung Batu Bogor** – Mendengar istileh kusen Pastinya sudah tidak asing lagi bagi anda. Kusen yakni sebuah penghubung yang merupakan komponen dari kontruksi bangunan, dimana kusen tadi bisa dihubungkan dg sebagian tipe benda seperti pintu, jendela dan bermacam-macam ragam jendela lainnya.

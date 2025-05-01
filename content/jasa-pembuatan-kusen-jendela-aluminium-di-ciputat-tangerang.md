@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Ciputat Tangerang"
-date: "2024-05-23"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Ciputat Tangerang. Seperti itulah sebagian info yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Alumini..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Ciputat Tangerang
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Ciputat Tangerang. Seperti itulah
+  sebagian info yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela
+  Alumini...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Ciputat Tangerang** – Mendengar istileh kusen Pastinya sudah tidak aneh lagi bagi anda. Kusen merupakan sebuah penghubung yang yaitu komponen dari kontruksi bangunan, dimana kusen tersebut bisa dihubungkan dengan beberapa variasi benda seperti pintu, jendela dan beraneka macam jendela lainnya.

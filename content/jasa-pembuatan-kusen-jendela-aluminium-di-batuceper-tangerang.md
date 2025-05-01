@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Batuceper Tangerang"
-date: "2024-05-21"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Batuceper Tangerang. Sampai disini sebagian penjelasan yg dapat kami sampaikan perihal Jasa Pembuatan Kusen Jendela..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Batuceper Tangerang
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Batuceper Tangerang. Sampai disini
+  sebagian penjelasan yg dapat kami sampaikan perihal Jasa Pembuatan Kusen
+  Jendela...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Batuceper Tangerang** – Mendengar istileh kusen Pastinya tidak akan aneh lagi untuk anda. Kusen ialah sebuah penghubung yg yakni bagian dari kontruksi bangunan, dimana kusen tersebut dapat dihubungkan dengan sebagian variasi benda semisal pintu, jendela dan bermacam-macam tipe jendela lainnya.

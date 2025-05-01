@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Karangtengah Tangerang"
-date: "2024-05-21"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Karangtengah Tangerang. Sampai disini sebagian pemaparan yang dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jen..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Karangtengah Tangerang
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Karangtengah Tangerang. Sampai
+  disini sebagian pemaparan yang dapat kami jelaskan mengenai Jasa Pembuatan
+  Kusen Jen...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Karangtengah Tangerang** – Mendengar istileh kusen Tentunya akan tidak aneh lagi bagi anda. Kusen ialah suatu penghubung yang merupakan bagian dari kontruksi bangunan, dimana kusen tersebut bisa dihubungkan dengan sebagian tipe benda semisal pintu, jendela dan bermacam-macam tipe jendela lainnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kebon Jeruk Jakarta"
-date: "2024-05-11"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kebon Jeruk Jakarta. Seperti itulah beberapa penjelasan yg bisa kami sampaikan tentang Jasa Pembuatan Kusen Jendela..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kebon Jeruk Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kebon Jeruk Jakarta. Seperti itulah
+  beberapa penjelasan yg bisa kami sampaikan tentang Jasa Pembuatan Kusen
+  Jendela...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kebon Jeruk Jakarta** – Mendengar istileh kusen Tentunya tidak akan heran lagi untuk anda. Kusen yakni sebuah penghubung yang yaitu komponen dari kontruksi bangunan, dimana kusen tadi bisa dihubungkan dg beberapa macam benda seperti pintu, jendela dan bermacam-macam macam jendela yang lain.
