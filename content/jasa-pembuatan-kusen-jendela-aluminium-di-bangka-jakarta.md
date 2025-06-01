@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Bangka Jakarta"
-date: "2024-06-21"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Bangka Jakarta. Sampai disini sebagian uraian yang bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela Aluminiu..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Bangka Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Bangka Jakarta. Sampai disini
+  sebagian uraian yang bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela
+  Aluminiu...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Bangka Jakarta** – Mendengar istileh kusen Pastinya tidak akan aneh lagi bagi anda. Kusen adalah sebuah penghubung yg adalah bagian dari kontruksi bangunan, dimana kusen tersebut bisa dihubungkan dg beberapa variasi benda semisal pintu, jendela dan bermacam-macam ragam jendela lainnya.

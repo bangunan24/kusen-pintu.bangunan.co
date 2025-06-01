@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kalisari Jakarta"
-date: "2024-06-25"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kalisari Jakarta. Seperti itulah beberapa uraian yang dapat kami uraikan tentang Jasa Pembuatan Kusen Jendela Alumi..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kalisari Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kalisari Jakarta. Seperti itulah
+  beberapa uraian yang dapat kami uraikan tentang Jasa Pembuatan Kusen Jendela
+  Alumi...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kalisari Jakarta** – Mendengar istileh kusen Tentunya akan tidak aneh lagi bagi anda. Kusen yaitu suatu penghubung yg yakni komponen dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan sebagian macam benda semisal pintu, jendela dan bermacam-macam macam jendela lainnya.

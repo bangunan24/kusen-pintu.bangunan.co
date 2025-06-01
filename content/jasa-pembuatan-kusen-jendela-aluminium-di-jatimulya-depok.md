@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Jatimulya Depok"
-date: "2024-06-09"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Jatimulya Depok. Sampai disini beberapa penjelasan yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Alum..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Jatimulya Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Jatimulya Depok. Sampai disini
+  beberapa penjelasan yg dapat kami jelaskan perihal Jasa Pembuatan Kusen
+  Jendela Alum...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Jatimulya Depok** – Mendengar istileh kusen Pastinya akan tdk heran lagi bagi anda. Kusen yakni sebuah penghubung yg adalah bagian dari kontruksi bangunan, dimana kusen tadi dapat dikaitkan dengan beberapa tipe benda seperti pintu, jendela dan bermacam-macam variasi jendela yang lain.

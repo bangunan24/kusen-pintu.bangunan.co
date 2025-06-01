@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cabangbungin Bekasi"
-date: "2024-06-14"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cabangbungin Bekasi. Itulah sebagian info yang dapat kami rincikan mengenai Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cabangbungin Bekasi
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cabangbungin Bekasi. Itulah sebagian
+  info yang dapat kami rincikan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cabangbungin Bekasi** – Mendengar istileh kusen Pastinya tidak akan asing lagi bagi anda. Kusen yaitu sebuah penghubung yg yaitu komponen dari kontruksi bangunan, dimana kusen tersebut dapat dihubungkan dengan sebagian jenis benda seperti pintu, jendela dan bermacam2 jenis jendela yang lain.

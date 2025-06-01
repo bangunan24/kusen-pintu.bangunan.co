@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Gondangdia Jakarta"
-date: "2024-06-12"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Gondangdia Jakarta. Sampai disini beberapa pemaparan yang bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela A..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Gondangdia Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Gondangdia Jakarta. Sampai disini
+  beberapa pemaparan yang bisa kami uraikan mengenai Jasa Pembuatan Kusen
+  Jendela A...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Gondangdia Jakarta** – Mendengar istileh kusen Tentunya tidak akan asing lagi bagi anda. Kusen merupakan suatu penghubung yang yaitu bagian dari kontruksi bangunan, dimana kusen tadi dapat dikaitkan dengan sebagian jenis benda seperti pintu, jendela dan bermacam2 variasi jendela yang lain.

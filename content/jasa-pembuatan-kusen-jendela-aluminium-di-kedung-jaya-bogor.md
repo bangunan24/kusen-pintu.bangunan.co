@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kedung Jaya Bogor"
-date: "2024-06-02"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kedung Jaya Bogor. Itulah beberapa pemaparan yang dapat kami sampaikan perihal Jasa Pembuatan Kusen Jendela Alumini..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kedung Jaya Bogor
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kedung Jaya Bogor. Itulah beberapa
+  pemaparan yang dapat kami sampaikan perihal Jasa Pembuatan Kusen Jendela
+  Alumini...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kedung Jaya Bogor** – Mendengar istileh kusen Tentunya tidak akan heran lagi bagi anda. Kusen ialah suatu penghubung yang ialah komponen dari kontruksi bangunan, dimana kusen tersebut dapat dihubungkan dengan beberapa jenis benda semisal pintu, jendela dan bermacam-macam macam jendela lainnya.

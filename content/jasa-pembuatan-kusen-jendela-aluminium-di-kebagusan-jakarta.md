@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kebagusan Jakarta"
-date: "2024-06-18"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kebagusan Jakarta. Demikian sebagian pemaparan yg dapat kami sampaikan mengenai Jasa Pembuatan Kusen Jendela Alumin..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kebagusan Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kebagusan Jakarta. Demikian sebagian
+  pemaparan yg dapat kami sampaikan mengenai Jasa Pembuatan Kusen Jendela
+  Alumin...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kebagusan Jakarta** – Mendengar istileh kusen Tentunya sudah tdk asing lagi bagi anda. Kusen yakni suatu penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi bisa dihubungkan dengan beberapa tipe benda semisal pintu, jendela dan bermacam-macam tipe jendela yang lain.

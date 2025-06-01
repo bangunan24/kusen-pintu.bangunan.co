@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kalibaru Depok"
-date: "2024-06-05"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kalibaru Depok. Demikian sebagian informasi yang dapat kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kalibaru Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kalibaru Depok. Demikian sebagian
+  informasi yang dapat kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kalibaru Depok** – Mendengar istileh kusen Pastinya tidak akan heran lagi untuk anda. Kusen merupakan suatu penghubung yg merupakan komponen dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg beberapa macam benda semisal pintu, jendela dan bermacam2 jenis jendela yang lain.

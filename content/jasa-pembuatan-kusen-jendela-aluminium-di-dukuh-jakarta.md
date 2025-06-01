@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Dukuh Jakarta"
-date: "2024-06-20"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Dukuh Jakarta. Demikian sebagian penjelasan yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminium di..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Dukuh Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Dukuh Jakarta. Demikian sebagian
+  penjelasan yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminium di...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Dukuh Jakarta** – Mendengar istileh kusen Pastinya akan tidak aneh lagi bagi anda. Kusen yaitu sebuah penghubung yg merupakan bagian dari kontruksi bangunan, dimana kusen tadi dapat dikaitkan dengan sebagian ragam benda semisal pintu, jendela dan beraneka macam jendela yang lain.
