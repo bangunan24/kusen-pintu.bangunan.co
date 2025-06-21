@@ -1,55 +1,57 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Hendra
+    name: Agus
     message: >-
-      Layanan kusen-pintu.bangunan.co berkualitas dengan hasil yang teratur dan
-      kualitas kusen yang hebat.
+      Saya menggunakan layanan pemasangan kusen pintu alumunium dari
+      kusen-pintu.bangunan.co untuk renovasi saya, dan hasilnya memenuhi
+      harapan. Pemasangannya rapi dan kualitas kusennya berkualitas tinggi.
     response: >-
       Terima kasih atas pilihan Anda! Kami senang dapat menyediakan kusen pintu
-      terbaik untuk rumah Anda.
+      berkualitas untuk rumah Anda.
     rating: 5
   - avatar: /images/admin/avatar2.png
     name: Nur
     message: >-
-      kusen-pintu.bangunan.co sangat mempermudah saya dalam memilih dan memasang
-      kusen pintu alumunium untuk proyek saya. Hasilnya luar biasa dan sesuai
-      dengan rencana saya.
-    response: Terima kasih atas ulasannya, kami senang dapat memenuhi harapan Anda.
+      kusen-pintu.bangunan.co sangat membantu saya dalam menentukan dan memasang
+      kusen pintu alumunium untuk proyek saya. Hasilnya sangat memuaskan dan
+      sesuai dengan ekspektasi saya.
+    response: >-
+      Kami sangat menghargai ulasan Anda. Senang mendengar bahwa Anda puas
+      dengan layanan dan produk kusen pintu kami.
     rating: 4
   - avatar: /images/admin/avatar3.png
-    name: Joko
+    name: Agus
     message: >-
-      Kusen pintu alumunium dari kusen-pintu.bangunan.co minimalis dan tahan
-      lama. Cocok untuk proyek konstruksi saya, dan proses pemasangannya juga
-      cepat.
+      Kusen pintu alumunium dari kusen-pintu.bangunan.co modern dan tahan lama.
+      Cocok untuk proyek gedung saya, dan proses pemasangannya juga profesional.
     response: >-
       Terima kasih! Kami berkomitmen untuk menyediakan kusen pintu berkualitas
       dengan pelayanan prima.
     rating: 4
   - avatar: /images/admin/avatar4.png
-    name: Dedi
+    name: Toni
     message: >-
-      Saya senang dengan kusen pintu dari kusen-pintu.bangunan.co. Mutu kusennya
-      terbaik dan pemasangannya cepat untuk proyek saya.
+      Saya terkesan dengan kusen pintu dari kusen-pintu.bangunan.co. Kualitas
+      kusennya terbaik dan pemasangannya rapi untuk proyek saya.
     response: >-
-      Senang mendengar Anda puas dengan kusen pintu kami. Terima kasih atas
-      kepercayaannya!
+      Kami sangat menghargai kepercayaan Anda. Terima kasih sudah memilih
+      layanan kami.
     rating: 5
   - avatar: /images/admin/avatar5.png
-    name: Nur
+    name: Ayu
     message: >-
-      Pelayanan kusen-pintu.bangunan.co luar biasa. Kusen pintu alumunium yang
-      saya terapkan bermutu dan sesuai dengan ekspektasi saya.
+      Pelayanan kusen-pintu.bangunan.co terbaik. Kusen pintu alumunium yang saya
+      gunakan berkualitas tinggi dan sesuai dengan rencana saya.
     response: >-
-      Terima kasih! Kami senang dapat melayani Anda mewujudkan proyek dengan
+      Terima kasih! Kami senang dapat membantu Anda mewujudkan proyek dengan
       kusen pintu terbaik.
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Yanto
+    name: Galih
     message: >-
-      Saya senang dengan kusen pintu dari kusen-pintu.bangunan.co. Layanan
-      pemasangannya teratur dan sesuai dengan kebutuhan proyek saya.
+      Saya puas dengan kusen pintu dari kusen-pintu.bangunan.co. Layanan
+      pemasangannya cepat dan sesuai dengan kebutuhan proyek saya.
     response: >-
-      Kami gembira mendengar bahwa Anda puas dengan kusen pintu kami. Terima
-      kasih atas kepercayaannya!
+      Terima kasih telah mempercayakan proyek Anda kepada kami. Kami senang Anda
+      puas dengan hasilnya.
     rating: 5
