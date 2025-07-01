@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cakung Jakarta"
-date: "2024-07-16"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cakung Jakarta. Demikian sebagian pemaparan yang bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cakung Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cakung Jakarta. Demikian sebagian
+  pemaparan yang bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cakung Jakarta** – Mendengar istileh kusen Pastinya tidak akan aneh lagi untuk anda. Kusen yaitu suatu penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi bisa dihubungkan dg beberapa jenis benda seperti pintu, jendela dan bermacam2 jenis jendela yang lain.

@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kaliwungu"
-date: "2024-07-01"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kaliwungu. Sampai disini beberapa penjelasan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kaliwungu
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kaliwungu. Sampai disini beberapa
+  penjelasan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kaliwungu** – Mendengar istileh kusen Tentunya tidak akan asing lagi bagi anda. Kusen adalah sebuah penghubung yang ialah bagian dari kontruksi bangunan, dimana kusen tersebut bisa dikaitkan dengan sebagian variasi benda semisal pintu, jendela dan beragam jenis jendela lainnya.

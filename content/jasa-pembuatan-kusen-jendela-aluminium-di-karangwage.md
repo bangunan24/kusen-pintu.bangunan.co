@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Karangwage"
-date: "2024-07-20"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Karangwage. Sampai disini sebagian uraian yg dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jendela Aluminium di..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Karangwage
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Karangwage. Sampai disini sebagian
+  uraian yg dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jendela Aluminium
+  di...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Karangwage** – Mendengar istileh kusen Tentunya tidak akan aneh lagi bagi anda. Kusen merupakan sebuah penghubung yg yakni bagian dari kontruksi bangunan, dimana kusen tersebut dapat dikaitkan dg beberapa jenis benda seperti pintu, jendela dan bermacam2 ragam jendela yang lain.

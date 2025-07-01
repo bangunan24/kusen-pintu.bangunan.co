@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kayumanis Bogor"
-date: "2024-07-30"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kayumanis Bogor. Demikian sebagian penjelasan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela Aluminiu..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kayumanis Bogor
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kayumanis Bogor. Demikian sebagian
+  penjelasan yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminiu...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kayumanis Bogor** – Mendengar istileh kusen Pastinya sudah tdk aneh lagi untuk anda. Kusen yakni sebuah penghubung yg yakni bagian dari kontruksi bangunan, dimana kusen tersebut dapat dihubungkan dengan beberapa ragam benda seperti pintu, jendela dan bermacam2 tipe jendela lainnya.

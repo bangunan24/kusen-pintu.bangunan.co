@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Banguntapan"
-date: "2024-07-23"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Banguntapan. Demikian beberapa info yang bisa kami rincikan mengenai Jasa Pembuatan Kusen Jendela Aluminium di Bang..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Banguntapan
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Banguntapan. Demikian beberapa info
+  yang bisa kami rincikan mengenai Jasa Pembuatan Kusen Jendela Aluminium di
+  Bang...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Banguntapan** – Mendengar istileh kusen Pastinya sudah tdk aneh lagi untuk anda. Kusen yakni sebuah penghubung yang yaitu komponen dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg sebagian macam benda semisal pintu, jendela dan beragam jenis jendela yang lain.

@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Blitar"
-date: "2024-07-08"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Blitar. Sampai disini beberapa informasi yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminium di Bl..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Blitar
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Blitar. Sampai disini beberapa
+  informasi yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminium
+  di Bl...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Blitar** – Mendengar istileh kusen Tentunya tidak akan aneh lagi bagi anda. Kusen yaitu suatu penghubung yg merupakan bagian dari kontruksi bangunan, dimana kusen tersebut dapat dihubungkan dg sebagian jenis benda seperti pintu, jendela dan beraneka variasi jendela lainnya.

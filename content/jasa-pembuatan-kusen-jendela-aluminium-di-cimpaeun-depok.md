@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cimpaeun Depok"
-date: "2024-07-07"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cimpaeun Depok. Sampai disini beberapa penjelasan yg bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela Alumin..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cimpaeun Depok
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cimpaeun Depok. Sampai disini
+  beberapa penjelasan yg bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela
+  Alumin...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cimpaeun Depok** – Mendengar istileh kusen Pastinya tidak akan asing lagi untuk anda. Kusen yakni suatu penghubung yg yaitu komponen dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dg sebagian tipe benda seperti pintu, jendela dan bermacam2 jenis jendela lainnya.

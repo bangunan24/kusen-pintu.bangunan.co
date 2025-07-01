@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Gresik"
-date: "2024-07-11"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Gresik. Sampai disini beberapa informasi yg bisa kami rincikan tentang Jasa Pembuatan Kusen Jendela Aluminium di Gr..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Gresik
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Gresik. Sampai disini beberapa
+  informasi yg bisa kami rincikan tentang Jasa Pembuatan Kusen Jendela Aluminium
+  di Gr...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Gresik** – Mendengar istileh kusen Tentunya tidak akan asing lagi untuk anda. Kusen yakni sebuah penghubung yang yaitu komponen dari kontruksi bangunan, dimana kusen tersebut dapat dikaitkan dg beberapa macam benda seperti pintu, jendela dan beraneka jenis jendela yang lain.

@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Bojonegoro"
-date: "2024-07-28"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Bojonegoro. Sampai disini beberapa uraian yg dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jendela Aluminium di..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Bojonegoro
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Bojonegoro. Sampai disini beberapa
+  uraian yg dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jendela Aluminium
+  di...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Bojonegoro** – Mendengar istileh kusen Tentunya sudah tdk asing lagi untuk anda. Kusen adalah suatu penghubung yang yakni bagian dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan beberapa ragam benda semisal pintu, jendela dan bermacam2 macam jendela yang lain.

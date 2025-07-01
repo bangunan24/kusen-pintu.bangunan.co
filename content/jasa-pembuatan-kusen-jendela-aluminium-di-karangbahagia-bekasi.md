@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Karangbahagia Bekasi"
-date: "2024-07-26"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Karangbahagia Bekasi. Demikian beberapa pemaparan yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Alumin..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Karangbahagia Bekasi
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Karangbahagia Bekasi. Demikian
+  beberapa pemaparan yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Alumin...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Karangbahagia Bekasi** – Mendengar istileh kusen Pastinya tidak akan heran lagi bagi anda. Kusen yaitu sebuah penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan beberapa variasi benda seperti pintu, jendela dan bermacam2 macam jendela yang lain.

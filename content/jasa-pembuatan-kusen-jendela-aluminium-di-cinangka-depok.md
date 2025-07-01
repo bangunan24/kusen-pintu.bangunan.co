@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cinangka Depok"
-date: "2024-07-21"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cinangka Depok. Sampai disini sebagian penjelasan yang dapat kami rincikan mengenai Jasa Pembuatan Kusen Jendela Al..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cinangka Depok
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cinangka Depok. Sampai disini
+  sebagian penjelasan yang dapat kami rincikan mengenai Jasa Pembuatan Kusen
+  Jendela Al...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cinangka Depok** – Mendengar istileh kusen Tentunya akan tdk heran lagi bagi anda. Kusen yaitu sebuah penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tersebut bisa dihubungkan dg sebagian macam benda semisal pintu, jendela dan bermacam-macam jenis jendela yang lain.

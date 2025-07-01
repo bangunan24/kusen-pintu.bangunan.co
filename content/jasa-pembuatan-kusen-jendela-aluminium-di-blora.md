@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Blora"
-date: "2024-07-05"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Blora. Demikian sebagian info yang bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminium di Blora. Anda..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Blora
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Blora. Demikian sebagian info yang
+  bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminium di Blora.
+  Anda...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Blora** – Mendengar istileh kusen Tentunya akan tdk asing lagi bagi anda. Kusen yakni sebuah penghubung yg merupakan komponen dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan sebagian tipe benda seperti pintu, jendela dan beragam variasi jendela yang lain.

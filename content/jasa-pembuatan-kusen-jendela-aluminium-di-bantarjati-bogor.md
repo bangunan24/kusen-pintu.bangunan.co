@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Bantarjati Bogor"
-date: "2024-07-09"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Bantarjati Bogor. Sampai disini sebagian penjelasan yang dapat kami uraikan perihal Jasa Pembuatan Kusen Jendela Al..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Bantarjati Bogor
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Bantarjati Bogor. Sampai disini
+  sebagian penjelasan yang dapat kami uraikan perihal Jasa Pembuatan Kusen
+  Jendela Al...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Bantarjati Bogor** – Mendengar istileh kusen Tentunya akan tidak asing lagi untuk anda. Kusen yaitu suatu penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan sebagian jenis benda semisal pintu, jendela dan beraneka tipe jendela lainnya.
