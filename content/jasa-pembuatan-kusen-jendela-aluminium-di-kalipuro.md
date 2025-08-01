@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kalipuro"
-date: "2024-08-01"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kalipuro. Seperti itulah sebagian pemaparan yang bisa kami sampaikan tentang Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kalipuro
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kalipuro. Seperti itulah sebagian
+  pemaparan yang bisa kami sampaikan tentang Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kalipuro** – Mendengar istileh kusen Tentunya sudah tdk heran lagi untuk anda. Kusen merupakan sebuah penghubung yang merupakan bagian dari kontruksi bangunan, dimana kusen tadi bisa dihubungkan dengan beberapa variasi benda semisal pintu, jendela dan bermacam2 jenis jendela yang lain.

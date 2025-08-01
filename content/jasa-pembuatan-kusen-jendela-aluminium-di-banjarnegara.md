@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Banjarnegara"
-date: "2024-08-16"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Banjarnegara. Itulah beberapa info yang bisa kami sampaikan perihal Jasa Pembuatan Kusen Jendela Aluminium di Banja..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Banjarnegara
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Banjarnegara. Itulah beberapa info
+  yang bisa kami sampaikan perihal Jasa Pembuatan Kusen Jendela Aluminium di
+  Banja...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Banjarnegara** – Mendengar istileh kusen Tentunya tidak akan aneh lagi bagi anda. Kusen merupakan suatu penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi dapat dikaitkan dg beberapa tipe benda seperti pintu, jendela dan bermacam2 ragam jendela yang lain.

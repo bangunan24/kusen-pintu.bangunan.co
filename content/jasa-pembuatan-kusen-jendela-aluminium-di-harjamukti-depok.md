@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Harjamukti Depok"
-date: "2024-08-11"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Harjamukti Depok. Itulah sebagian uraian yang dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Aluminium di..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Harjamukti Depok
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Harjamukti Depok. Itulah sebagian
+  uraian yang dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Aluminium
+  di...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Harjamukti Depok** – Mendengar istileh kusen Tentunya tidak akan asing lagi untuk anda. Kusen yakni suatu penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg beberapa jenis benda semisal pintu, jendela dan beraneka variasi jendela lainnya.

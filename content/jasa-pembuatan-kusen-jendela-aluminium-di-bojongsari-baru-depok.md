@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Bojongsari Baru Depok"
-date: "2024-08-14"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Bojongsari Baru Depok. Demikian beberapa pemaparan yg bisa kami uraikan perihal Jasa Pembuatan Kusen Jendela Alumin..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Bojongsari Baru Depok
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Bojongsari Baru Depok. Demikian
+  beberapa pemaparan yg bisa kami uraikan perihal Jasa Pembuatan Kusen Jendela
+  Alumin...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Bojongsari Baru Depok** – Mendengar istileh kusen Tentunya tidak akan heran lagi untuk anda. Kusen yaitu sebuah penghubung yang adalah komponen dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg sebagian tipe benda seperti pintu, jendela dan bermacam-macam variasi jendela yang lain.

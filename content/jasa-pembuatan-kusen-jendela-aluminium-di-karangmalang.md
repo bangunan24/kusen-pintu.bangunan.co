@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Karangmalang"
-date: "2024-08-21"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Karangmalang. Demikian beberapa info yg dapat kami uraikan tentang Jasa Pembuatan Kusen Jendela Aluminium di Karang..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Karangmalang
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Karangmalang. Demikian beberapa info
+  yg dapat kami uraikan tentang Jasa Pembuatan Kusen Jendela Aluminium di
+  Karang...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Karangmalang** – Mendengar istileh kusen Tentunya tidak akan aneh lagi untuk anda. Kusen adalah suatu penghubung yang yakni komponen dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan sebagian variasi benda seperti pintu, jendela dan bermacam2 macam jendela lainnya.

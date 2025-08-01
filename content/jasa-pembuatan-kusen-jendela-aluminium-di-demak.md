@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Demak"
-date: "2024-08-30"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Demak. Sampai disini beberapa informasi yang dapat kami sampaikan tentang Jasa Pembuatan Kusen Jendela Aluminium di..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Demak
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Demak. Sampai disini beberapa
+  informasi yang dapat kami sampaikan tentang Jasa Pembuatan Kusen Jendela
+  Aluminium di...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Demak** – Mendengar istileh kusen Tentunya akan tidak asing lagi bagi anda. Kusen yakni suatu penghubung yang adalah komponen dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dengan sebagian ragam benda semisal pintu, jendela dan bermacam-macam ragam jendela yang lain.

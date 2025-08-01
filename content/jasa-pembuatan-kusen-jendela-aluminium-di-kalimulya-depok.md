@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kalimulya Depok"
-date: "2024-08-21"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kalimulya Depok. Sampai disini beberapa uraian yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Aluminiu..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kalimulya Depok
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kalimulya Depok. Sampai disini
+  beberapa uraian yg dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela
+  Aluminiu...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kalimulya Depok** – Mendengar istileh kusen Tentunya sudah tdk aneh lagi bagi anda. Kusen adalah sebuah penghubung yg yakni bagian dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan beberapa tipe benda semisal pintu, jendela dan bermacam-macam variasi jendela lainnya.

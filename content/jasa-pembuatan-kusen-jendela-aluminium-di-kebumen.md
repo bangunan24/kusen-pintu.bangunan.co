@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kebumen"
-date: "2024-08-04"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kebumen. Itulah sebagian pemaparan yg dapat kami jelaskan tentang Jasa Pembuatan Kusen Jendela Aluminium di Kebumen..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kebumen
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kebumen. Itulah sebagian pemaparan
+  yg dapat kami jelaskan tentang Jasa Pembuatan Kusen Jendela Aluminium di
+  Kebumen...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kebumen** – Mendengar istileh kusen Pastinya tidak akan aneh lagi untuk anda. Kusen adalah sebuah penghubung yang yaitu bagian dari kontruksi bangunan, dimana kusen tersebut dapat dikaitkan dengan beberapa jenis benda semisal pintu, jendela dan beraneka macam jendela yang lain.

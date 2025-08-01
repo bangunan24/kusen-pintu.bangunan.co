@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Baktijaya Depok"
-date: "2024-08-24"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Baktijaya Depok. Seperti itulah sebagian penjelasan yg bisa kami jelaskan perihal Jasa Pembuatan Kusen Jendela Alum..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Baktijaya Depok
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Baktijaya Depok. Seperti itulah
+  sebagian penjelasan yg bisa kami jelaskan perihal Jasa Pembuatan Kusen Jendela
+  Alum...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Baktijaya Depok** – Mendengar istileh kusen Tentunya akan tidak asing lagi bagi anda. Kusen yakni sebuah penghubung yg ialah komponen dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan beberapa variasi benda seperti pintu, jendela dan beraneka jenis jendela yang lain.

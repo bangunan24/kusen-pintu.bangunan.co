@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kapuk Jakarta"
-date: "2024-08-25"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kapuk Jakarta. Demikian sebagian pemaparan yang dapat kami jelaskan tentang Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kapuk Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kapuk Jakarta. Demikian sebagian
+  pemaparan yang dapat kami jelaskan tentang Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kapuk Jakarta** – Mendengar istileh kusen Tentunya sudah tidak aneh lagi bagi anda. Kusen yaitu suatu penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tadi bisa dikaitkan dengan sebagian tipe benda seperti pintu, jendela dan beragam jenis jendela lainnya.

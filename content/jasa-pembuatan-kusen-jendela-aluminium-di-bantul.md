@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Bantul"
-date: "2024-08-11"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Bantul. Seperti itulah beberapa penjelasan yg bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela Aluminium di..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Bantul
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Bantul. Seperti itulah beberapa
+  penjelasan yg bisa kami rincikan perihal Jasa Pembuatan Kusen Jendela
+  Aluminium di...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Bantul** – Mendengar istileh kusen Pastinya tidak akan asing lagi untuk anda. Kusen merupakan sebuah penghubung yg merupakan bagian dari kontruksi bangunan, dimana kusen tadi dapat dikaitkan dg beberapa variasi benda seperti pintu, jendela dan beraneka ragam jendela lainnya.

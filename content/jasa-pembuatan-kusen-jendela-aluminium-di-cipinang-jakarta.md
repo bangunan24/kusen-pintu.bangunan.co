@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cipinang Jakarta"
-date: "2024-08-09"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cipinang Jakarta. Sampai disini sebagian uraian yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela Aluminiu..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cipinang Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cipinang Jakarta. Sampai disini
+  sebagian uraian yg bisa kami uraikan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminiu...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cipinang Jakarta** – Mendengar istileh kusen Tentunya tidak akan asing lagi bagi anda. Kusen adalah sebuah penghubung yang yaitu bagian dari kontruksi bangunan, dimana kusen tersebut bisa dihubungkan dengan sebagian jenis benda semisal pintu, jendela dan beraneka macam jendela yang lain.

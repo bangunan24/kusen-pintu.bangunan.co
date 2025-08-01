@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kalibata Jakarta"
-date: "2024-08-26"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kalibata Jakarta. Seperti itulah beberapa pemaparan yg bisa kami uraikan perihal Jasa Pembuatan Kusen Jendela Alumi..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kalibata Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kalibata Jakarta. Seperti itulah
+  beberapa pemaparan yg bisa kami uraikan perihal Jasa Pembuatan Kusen Jendela
+  Alumi...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kalibata Jakarta** – Mendengar istileh kusen Tentunya tidak akan heran lagi bagi anda. Kusen yaitu sebuah penghubung yg adalah bagian dari kontruksi bangunan, dimana kusen tadi dapat dikaitkan dengan sebagian ragam benda seperti pintu, jendela dan beraneka macam jendela yang lain.

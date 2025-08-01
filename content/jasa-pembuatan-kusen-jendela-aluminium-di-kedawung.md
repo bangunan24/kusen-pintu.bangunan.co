@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kedawung"
-date: "2024-08-18"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kedawung. Sampai disini sebagian informasi yang dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kedawung
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kedawung. Sampai disini sebagian
+  informasi yang dapat kami jelaskan perihal Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kedawung** – Mendengar istileh kusen Tentunya tidak akan aneh lagi untuk anda. Kusen merupakan suatu penghubung yg ialah komponen dari kontruksi bangunan, dimana kusen tersebut bisa dikaitkan dengan beberapa jenis benda semisal pintu, jendela dan beraneka macam jendela lainnya.

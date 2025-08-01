@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Cilincing Jakarta"
-date: "2024-08-22"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Cilincing Jakarta. Demikian sebagian informasi yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela Alumini..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Cilincing Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Cilincing Jakarta. Demikian sebagian
+  informasi yg bisa kami sampaikan mengenai Jasa Pembuatan Kusen Jendela
+  Alumini...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Cilincing Jakarta** – Mendengar istileh kusen Tentunya tidak akan asing lagi bagi anda. Kusen ialah suatu penghubung yang merupakan komponen dari kontruksi bangunan, dimana kusen tersebut bisa dihubungkan dengan sebagian jenis benda semisal pintu, jendela dan bermacam2 ragam jendela lainnya.
