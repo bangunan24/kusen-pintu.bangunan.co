@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kampung Melayu Jakarta"
-date: "2024-09-14"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kampung Melayu Jakarta. Sampai disini beberapa informasi yang bisa kami jelaskan mengenai Jasa Pembuatan Kusen Jend..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kampung Melayu Jakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kampung Melayu Jakarta. Sampai
+  disini beberapa informasi yang bisa kami jelaskan mengenai Jasa Pembuatan
+  Kusen Jend...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kampung Melayu Jakarta** – Mendengar istileh kusen Tentunya sudah tidak heran lagi untuk anda. Kusen yakni sebuah penghubung yg adalah bagian dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dengan sebagian ragam benda seperti pintu, jendela dan bermacam-macam ragam jendela lainnya.

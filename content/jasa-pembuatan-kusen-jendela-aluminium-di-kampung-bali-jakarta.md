@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kampung Bali Jakarta"
-date: "2024-09-03"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kampung Bali Jakarta. Demikian beberapa info yg dapat kami jelaskan tentang Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kampung Bali Jakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kampung Bali Jakarta. Demikian
+  beberapa info yg dapat kami jelaskan tentang Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kampung Bali Jakarta** – Mendengar istileh kusen Pastinya tidak akan asing lagi bagi anda. Kusen adalah suatu penghubung yang yaitu bagian dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dg beberapa tipe benda seperti pintu, jendela dan bermacam2 macam jendela lainnya.

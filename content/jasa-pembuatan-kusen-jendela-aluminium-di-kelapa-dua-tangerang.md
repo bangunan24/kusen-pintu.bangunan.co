@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Kelapa Dua Tangerang"
-date: "2024-09-02"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Kelapa Dua Tangerang. Itulah sebagian uraian yg dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jendela Aluminium..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Kelapa Dua Tangerang
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Kelapa Dua Tangerang. Itulah
+  sebagian uraian yg dapat kami jelaskan mengenai Jasa Pembuatan Kusen Jendela
+  Aluminium...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Kelapa Dua Tangerang** – Mendengar istileh kusen Tentunya sudah tidak heran lagi untuk anda. Kusen yaitu sebuah penghubung yang adalah bagian dari kontruksi bangunan, dimana kusen tersebut bisa dikaitkan dengan beberapa tipe benda semisal pintu, jendela dan bermacam2 ragam jendela lainnya.

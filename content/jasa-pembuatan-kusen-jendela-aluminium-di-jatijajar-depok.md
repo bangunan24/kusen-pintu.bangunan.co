@@ -1,9 +1,12 @@
 ---
-title: "Jasa Pembuatan Kusen Jendela Aluminium di Jatijajar Depok"
-date: "2024-09-07"
-categories: 
-  - "harga"
-description: "Jasa Pembuatan Kusen Jendela Aluminium di Jatijajar Depok. Seperti itulah beberapa uraian yg bisa kami sampaikan perihal Jasa Pembuatan Kusen Jendela Alumini..."
+title: Jasa Pembuatan Kusen Jendela Aluminium di Jatijajar Depok
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jasa Pembuatan Kusen Jendela Aluminium di Jatijajar Depok. Seperti itulah
+  beberapa uraian yg bisa kami sampaikan perihal Jasa Pembuatan Kusen Jendela
+  Alumini...
 ---
 
 **Jasa Pembuatan Kusen Jendela Aluminium di Jatijajar Depok** – Mendengar istileh kusen Pastinya tidak akan aneh lagi untuk anda. Kusen yaitu suatu penghubung yang yakni bagian dari kontruksi bangunan, dimana kusen tadi dapat dihubungkan dengan sebagian variasi benda semisal pintu, jendela dan bermacam-macam variasi jendela yang lain.
